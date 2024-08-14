@@ -1,1 +1,1 @@
-WEB-BASED SUBDIVISION MANAGEMENT INFORMATION SYSTEM (WSMIS) FOR SAN MARINO CLASSIC IN DASMARIÑAS CAVITE
+Web-Based Subdivision Management Information System (WSMIS) for San Marino Classic in Dasmariñas Cavite
